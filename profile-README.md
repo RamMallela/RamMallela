@@ -35,5 +35,5 @@ Natural language processing · retrieval-augmented generation · agentic systems
 
 ## Get in touch
 
-[LinkedIn](https://www.linkedin.com/in/%5Byour-handle%5D) · \[your public email]
+[LinkedIn](www.linkedin.com/in/srirama-mallela-8b5317240) · 
 
